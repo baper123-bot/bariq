@@ -1,0 +1,2 @@
+# bariq
+Semoga tidak mengecewakan
